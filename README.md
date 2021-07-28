@@ -1,1 +1,1 @@
-# Thomas-Kuszaj
+# Thomas-Kuszaj Osteopath D.O 
